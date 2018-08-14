@@ -6,8 +6,6 @@ Enismnameto de como o git funciona
 
 
 
-
-
-
-
 Gostei da aula pq eh de graca
+
+Estou aprendendo de tudo JHOW
